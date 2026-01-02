@@ -1,8 +1,9 @@
 {
-  "baseFontSize": 18,
+  "baseFontSize": 19,
   "textFontFamily": "霞鹜文楷",
   "theme": "obsidian",
   "monospaceFontFamily": "",
   "accentColor": "",
-  "interfaceFontFamily": "霞鹜文楷"
+  "interfaceFontFamily": "霞鹜文楷",
+  "baseFontSizeAction": true
 }
