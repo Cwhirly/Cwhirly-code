@@ -871,3 +871,155 @@ Hoo~
 批深批透斗倒斗臭
 清除你们这堆臭垃圾
 清除臭垃圾
+
+---
+We're no strangers to love
+You know the rules and so do I
+A full commitment's what I'm thinking of
+You wouldn't get this from any other guy
+I just wanna tell you how I'm feeling
+Gotta make you understand
+Never gonna give you up never gonna let you down
+Never gonna run around and desert you
+Never gonna make you cry never gonna say goodbye
+Never gonna tell a lie and hurt you
+We've known each other for so long
+Your heart's been aching but you're too shy to say it
+Inside we both know what's been going on
+We know the game and we're gonna play it
+And if you ask me how I'm feeling
+Don't tell me you're too blind to see
+Never gonna give you up never gonna let you down
+Never gonna run around and desert you
+Never gonna make you cry never gonna say goodbye
+Never gonna tell a lie and hurt you
+Never gonna give you up never gonna let you down
+Never gonna run around and desert you
+Never gonna make you cry never gonna say goodbye
+Never gonna tell a lie and hurt you
+(Ooh give you up)
+(Ooh give you up)
+(Ooh) never gonna give never gonna give (give you up)
+(Ooh) never gonna give never gonna give (give you up)
+We've known each other for so long
+Your heart's been aching but you're too shy to say it
+Inside we both know what's been going on
+We know the game and we're gonna play it
+I just wanna tell you how I'm feeling
+Gotta make you understand
+Never gonna give you up never gonna let you down
+Never gonna run around and desert you
+Never gonna make you cry never gonna say goodbye
+Never gonna tell a lie and hurt you
+Never gonna give you up never gonna let you down
+Never gonna run around and desert you
+Never gonna make you cry never gonna say goodbye
+Never gonna tell a lie and hurt you
+Never gonna give you up never gonna let you down
+Never gonna run around and desert you
+Never gonna make you cry never gonna say goodbye
+Never gonna tell a lie and hurt you
+
+---
+叛徒
+特务
+大军阀
+反党分子野心家
+走资派
+投降派
+修正主义
+大恶霸
+黑线人物
+不革命
+黑秀才
+黑手
+黑帮凶
+经验主义
+民主派
+中庸之道
+变色龙
+绊脚石
+墙头草
+老好人
+小修苗
+造谣公司
+传话筒
+逆流
+邪风
+小爬虫
+
+---
+轻轻敲醒沉睡的心灵
+慢慢张开你的眼睛
+看看忙碌的世界
+是否依然孤独地转个不停
+春风不解风情
+吹动少年的心
+让昨日脸上的泪痕
+随记忆风干了
+抬头寻找天空的翅膀
+候鸟出现它的影迹
+带来远处的饥荒无情的战火
+依然存在的消息
+玉山白雪飘零
+燃烧少年的心
+使真情溶化成音符
+倾诉遥远的祝福
+唱出你的热情
+伸出你双手
+让我拥抱着你的梦
+让我拥有你真心的面孔
+让我们的笑容
+充满着青春的骄傲
+为明天献出虔诚的祈祷
+谁能不顾自己的家园
+抛开记忆中的童年
+谁能忍心看那昨日的忧愁
+带走我们的笑容
+青春不解红尘
+胭脂沾染了灰
+让久违不见的泪水
+滋润了你的面容
+唱出你的热情
+伸出你双手
+让我拥抱着你的梦
+让我拥有你真心的面孔
+让我们的笑容
+充满着青春的骄傲
+为明天献出虔诚的祈祷
+轻轻敲醒沉睡的心灵
+慢慢张开你的眼睛
+看那忙碌的世界
+是否依然孤独地转个不停
+日出唤醒清晨
+大地光彩重生
+让和风拂出的音响
+谱成生命的乐章
+唱出你的热情
+伸出你双手
+让我拥抱着你的梦
+让我拥有你真心的面孔
+让我们的笑容
+充满着青春的骄傲
+让我们期待明天会更好
+唱出你的热情
+伸出你双手
+让我拥抱着你的梦
+让我拥有你真心的面孔
+让我们的笑容
+充满着青春的骄傲
+让我们期待明天会更好
+唱出你的热情
+伸出你双手
+让我拥抱着你的梦（拥抱着你的梦）
+让我拥有你真心的面孔（让我拥有你真心的面孔）
+让我们的笑容
+充满着青春的骄傲（青春的骄傲）
+让我们期待明天会更好
+唱出你的热情
+伸出你双手
+让我拥抱着你的梦
+让我拥有你真心的面孔（你真心的面孔）
+让我们的笑容
+充满着青春的骄傲（青春的骄傲）
+让我们期待明天会更好
