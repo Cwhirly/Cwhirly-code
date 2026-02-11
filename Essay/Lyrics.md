@@ -66,52 +66,6 @@ Wooh 叩叩 叩叩
 Wooh~ 
 
 ---
-It's been a long day without you my friend
-And I'll tell you all about it when I see you again
-We've come a long way from where we began
-Oh I'll tell you all about it when I see you again
-When I see you again
-Damn, who knew all the planes we flew
-Good things we've been through
-That I'll be standing right here
-Talking to you about another path
-I know we loved to hit the road and laugh
-But something told me that it wouldn't last
-Had to switch up look at things different see the bigger picture
-Those were the days hard work forever pays
-Now I see you in a better place
-How could we not talk about family when family's all that we got?
-Everything I went through you were standing there by my side
-And now you gonna be with me for the last ride
-It's been a long day without you my friend
-And I'll tell you all about it when I see you again
-We've come a long way from where we began
-Oh I'll tell you all about it when I see you again
-When I see you again
-First you both go out your way
-And the vibe is feeling strong and what's small turn to a friendship
-A friendship turn into a bond and that bond will never be broken and the love
-will never get lost
-And when brotherhood come first then the line
-Will never be crossed established it on our own
-When that line had to be drawn and that line is what
-We reach so remember me when I'm gone
-How could we not talk about family when family's all that we got?
-Everything I went through you were standing there by my side
-And now you gonna be with me for the last ride
-So let the light guide your way
-Hold every memory as you go
-And every road you take will always lead you home
-Hoo~
-It's been a long day without you my friend
-And I'll tell you all about it when I see you again
-We've come a long way from where we began
-Oh I'll tell you all about it when I see you again
-When I see you again
-When I see you again, see you again
-When I see you again
-
----
 Lately, I've been, I've been losing sleep
 Dreaming about the things that we could be
 But baby, I've been, I've been praying hard,
@@ -998,3 +952,311 @@ Never gonna tell a lie and hurt you
 让我们的笑容
 充满着青春的骄傲（青春的骄傲）
 让我们期待明天会更好
+
+---
+Birds are born with no shackles
+Then what fetters my fate?
+Blown away, the white petals
+Leave me trapped in the cage.
+The endless isolation
+Can't wear down my illusion
+Someday, I'll make a dream unchained
+Let my heart bravely spread the wings
+Soaring past the night
+To trace the bright moonlight
+Let the clouds heal me of the stings
+Gently wipe the sorrow off my life
+I dream
+What is meant by "miracle",
+A word outside my days?
+Once again, repeat warbles
+But how could I escape?
+No further hesitation
+On those unanswered questions
+So now, I'll make a dream unchained
+Let my heart bravely spread the wings
+Soaring past the night
+To trace the bright moonlight
+Let the clouds heal me of the stings
+Gently wipe the sorrow off my life
+I dream
+Let my heart bravely spread the wings
+Soaring past the night
+To trace the bright moonlight
+Let the clouds heal me of the stings
+Gently wipe the sorrow off my life
+I dream
+I dream
+
+---
+Legends aren't born that way
+But by deeds
+Bloodline denotes nothing
+How do towering trees grow from a seed
+And achievements rise from the ash?
+We endure and suffer lose and bleed
+Still we clash against the sky
+You and I are weak like the reeds
+But chasing flames is carved into creed
+Cleave the darkness, seize the light
+Daybreak's meant to be free
+We are gonna shatter the ties
+Time's worn away the lives
+And bygones
+Leaving faith to resound
+Behold all the pioneering souls
+In the gloom, they strive to flash
+Though the journey's filled with wounds and tolls
+Still we clash against the sky
+Let's defy the judgment of flaws
+Would rather die than kneel down or crawl
+Cleave the darkness, seize the light
+Daybreak's meant to be free
+We are gonna shatter the ties
+You and I are weak like the reeds
+But chasing flames is carved into creed
+Cleave the darkness, seize the light
+A brand new dawn's within reach
+We are gonna make it untied
+
+---
+甲： 最近有家工厂的货卖不出去了。
+乙：怎么，工厂的货还有卖不出去的？
+甲 ：没人要啊。
+乙 ：什么产品啊？
+甲 ：帽子。
+乙 ：我要！我正好没帽子。
+甲 ：那帽子可大。
+乙 ：诶，那帽子大一点儿啊，戴着痛快。
+甲 ：分量重！
+乙 ：那戴着多暖和啊！
+甲： 那戴上受不了。
+乙： 戴帽子有什么受不了的？……我受得了。
+甲： 戴上可就摘不下来了！
+乙： 什么帽子？
+甲：反革命帽子！
+乙： 受不了！
+乙：我说哪个工厂卖这种帽子？
+甲： 就是“四人帮”开设的那个“帽子工厂”。
+乙：哦，就是反党集团王、张、江、姚那个买卖。
+甲 ：对。
+甲：那个王“股东”亲自坐镇，张“军师”周密设计，姚“掌柜”广泛宣传， 江“老板”四处推销。
+乙： 江老板，江青，老妖精！
+甲：就是他。
+### 第二部分
+甲： 这个江老板呐，为了开设这个“帽子工厂”，那是绞尽脑汁，精心制作，花样翻新，名目繁多，古今中外，一概俱全。
+乙： 哎，那都有什么帽子？
+甲： 孔老二货底子，那破帽子啊，他们给加工了；王明库存的旧帽子，他们盘点了；刘少奇留下的那批老帽子，他们垄断了；林彪那批新帽子他们接管了！又进口一批苏修的外国帽子，还有一批马拿扒的帽子……
+乙： 啊不！“巴拿马”的帽子。
+甲： 不！“马拿扒”！
+乙： 怎么叫“马拿巴”呢？
+甲： 戴上这种帽子，马上就能把你的职务扒下来。
+乙： 嚄！这帽子够厉害。
+甲： 也分大、中、小三号。
+乙： 还分号呐！
+甲： 她给不同的人扣不同的帽子。
+乙： 诶，这个大号的帽子都有什么呀？
+甲： 什么“叛徒”、“特务”、“大军阀”，“反党分子”，“[野心家](https://baike.baidu.com/item/%E9%87%8E%E5%BF%83%E5%AE%B6/1216842?fromModule=lemma_inlink)”，“[走资派](https://baike.baidu.com/item/%E8%B5%B0%E8%B5%84%E6%B4%BE/4378191?fromModule=lemma_inlink)”、“[投降派](https://baike.baidu.com/item/%E6%8A%95%E9%99%8D%E6%B4%BE/12591839?fromModule=lemma_inlink)”、“[修正主义](https://baike.baidu.com/item/%E4%BF%AE%E6%AD%A3%E4%B8%BB%E4%B9%89/199203?fromModule=lemma_inlink)”、“大恶霸”。
+乙： 嚄！那中号的？
+甲： “黑线人物”、“不革命”，“黑秀才”、“黑手”、“黑帮凶”，“[经验主义](https://baike.baidu.com/item/%E7%BB%8F%E9%AA%8C%E4%B8%BB%E4%B9%89/1249388?fromModule=lemma_inlink)”、“民主派”，“[中庸之道](https://baike.baidu.com/item/%E4%B8%AD%E5%BA%B8%E4%B9%8B%E9%81%93/24148986?fromModule=lemma_inlink)”、“变色龙”。
+乙： 这中号帽子也够尺寸呐。诶，那小号的就小点了吧？
+甲：小号的啊，有 “绊脚石”、“墙头草”，“老好人”、“小修苗”，“造谣公司”、“传话筒”，“逆流”、“邪风”、“小爬虫”。
+乙： 这帽子都够分量啊！
+甲： 你说你戴几号的合适啊！
+乙： 我都戴不起。
+甲： 来顶处理的吧！
+乙： 那行。哎，不要！处理的也不要啊。
+甲： 他要想给你戴，不要也不行。不管合适不合适，非戴不可呀。
+乙： 诶，那怎么就戴不上呢？
+甲： 有的人呐，粗腿抱得紧、报告打得勤、谎话说得多、马屁拍的响的，就戴不上他们的帽子了。
+乙： 得会拍马屁啊！
+### 第三部分
+甲： 诶嘿，比方说啊，他们要说：“煤球是白的……”
+乙： 什么，煤球是白的？这叫胡说八道，颠倒黑白啊！这个煤球有……
+甲： 诶，就冲这质问的态度，也得戴个小号的。
+乙： 啊不，这煤球有……
+甲： 你得顺着他们说啊。
+乙：哦，我得顺着说。
+甲：啊。
+乙：这煤球啊，这个煤球跟元宵一个模样。
+甲： “那皮球，可是方的。”
+乙：嗯，是，嗯嗯，凡是球都是见棱见角。
+甲： “外国的月亮，我看，比中国的月亮亮……”
+乙： “诶，对，一个地方一个，月亮”。
+甲： “你们听听，他说的是多么的准确呀。哈哈哈。”
+乙： （旁白）我亏心不亏心啊！
+甲： 他们要说：“外国人放个屁都是香的……”
+乙： 我应该加以赞扬，表示欣赏。
+甲： 诶诶嘿嘿嘿。
+甲：这样，你就戴不上他们的帽子了。
+乙： 是啊……我成[贱骨头](https://baike.baidu.com/item/%E8%B4%B1%E9%AA%A8%E5%A4%B4/1097949?fromModule=lemma_inlink)了。
+甲： 只要你说出他们想要说的话，做出他们想要做的事。尽管你，作了一个曲子， 唱了一出戏，跳了一个舞，交过一张答卷，说过一句吹捧他们的话，
+乙：怎么样。
+甲： 就能一步登天，青云直上，住上那小高楼，吃上小灶饭，坐上小汽车。
+乙： 我就成了小螃蟹了！
+乙：诶，那我要听从他们指挥，给他们办事……
+甲： 那个江老板就能介绍你入党。
+乙： 我？
+甲： 一句话的事儿。
+乙：不行不行……
+乙： “我爷爷是……是老[托派](https://baike.baidu.com/item/%E6%89%98%E6%B4%BE/4511869?fromModule=lemma_inlink)……”
+甲： “没有！”
+乙： “我爸爸是叛徒……”
+甲： “不算！”
+乙： “我这历史也……”
+甲： “清白！”
+乙： “我考试都答不上来……”
+甲： “真有反潮流精神。”
+乙： “您可真是一位旗手！”
+甲： “你可以当个副部长！”
+乙： “谢谢妈！”这纯粹是拉山头搞宗派呀。
+甲：他们要的，就是顺我者昌，逆我者亡。
+乙： 我们要坚决向他们作斗争！
+甲： 凡是妨碍他们篡权，反对他们作恶，不听他们的话，不服他们的管，不随他们的心意，他们看着不顺眼的，就全是“帽子工厂”的推销对象。
+乙： 他们帽子再多，也戴不到我头上来。
+甲： 要想给你戴，你就跑不了！
+乙： “我是一直跟随[毛主席](https://baike.baidu.com/item/%E6%AF%9B%E4%B8%BB%E5%B8%AD/380922?fromModule=lemma_inlink)他老人家，南征北战几十年。我是坚决听毛主席的话。”
+甲：“你呀，就是民主革命派，也就是党内的[走资派](https://baike.baidu.com/item/%E8%B5%B0%E8%B5%84%E6%B4%BE/4378191?fromModule=lemma_inlink)。”
+乙： 这帽子就飞来了！“我是新干部。”
+甲： “新兴的[资产阶级](https://baike.baidu.com/item/%E8%B5%84%E4%BA%A7%E9%98%B6%E7%BA%A7/545989?fromModule=lemma_inlink)分子。”
+乙： “我不是领导。”
+甲： “混入群众里边的坏人。”
+乙： 嚄！“你也没调查研究……”
+甲： “攻击领导。”
+乙： “你……”
+甲： “谩骂[首长](https://baike.baidu.com/item/%E9%A6%96%E9%95%BF/23550525?fromModule=lemma_inlink)。”
+乙： “不说话。”
+甲： “[暗中盘算](https://baike.baidu.com/item/%E6%9A%97%E4%B8%AD%E7%9B%98%E7%AE%97/4752860?fromModule=lemma_inlink)。”
+乙： “闭上眼睛。”
+甲： “怀恨在心。”
+乙： （无可奈何，揣手动作）……
+甲： “掏什么凶器呢？”
+乙： “我没掏凶器！”
+乙： 怎么着也不行啊！
+甲： 全给你扣上了吧！
+乙： 这全是捏造啊。
+甲： 就是捏造啊。这个江老板呐，为了篡党夺权当女皇，竟敢给我们敬爱的华主席、周总理捏造罪名扣帽子，企图打倒一大批中央和地方的党政军负责同志。
+乙： 有我们这些革命老前辈在，他们就不能够实现野心。
+### 第四部分
+甲：凡是毛主席提倡的，这个江青，就想方设法地扣上帽子。
+乙：毛主席说“[工业学大庆](https://baike.baidu.com/item/%E5%B7%A5%E4%B8%9A%E5%AD%A6%E5%A4%A7%E5%BA%86/1214328?fromModule=lemma_inlink)”。
+甲：江青说[大庆](https://baike.baidu.com/item/%E5%A4%A7%E5%BA%86/138196?fromModule=lemma_inlink)[两论起家](https://baike.baidu.com/item/%E4%B8%A4%E8%AE%BA%E8%B5%B7%E5%AE%B6/12001666?fromModule=lemma_inlink)是假的。不符合事实。
+乙：毛主席说“[农业学大寨](https://baike.baidu.com/item/%E5%86%9C%E4%B8%9A%E5%AD%A6%E5%A4%A7%E5%AF%A8/1215814?fromModule=lemma_inlink)”。
+甲：江青说[大寨](https://baike.baidu.com/item/%E5%A4%A7%E5%AF%A8/25193?fromModule=lemma_inlink)政治上落后，骄傲自满。
+乙：毛主席说“全国学人民解放军”。
+甲：江青说就要整整部队。
+乙：这完全对抗毛主席的指示。
+甲： 这个江老板呐，是到处煽阴风、点鬼火啊。走到哪儿扣到哪儿，那帽子满天飞。她到工厂去，破坏“抓革命、促生产”，弄得你左也不是， 右也不是。
+乙：哎，比如说，我这儿就是工厂，我看看这个江老板究竟是怎么表演的。
+甲： “我听听你们的情况。”
+乙： “我们是以大庆为榜样，坚持抓革命促生产，顺利地完成了上半年的生产指标。”
+甲： “因循守旧，墨守成规，胸无大局，满足现状！”
+乙： 哦，这就四顶中号的啊。“我们学习了[鞍钢宪法](https://baike.baidu.com/item/%E9%9E%8D%E9%92%A2%E5%AE%AA%E6%B3%95/10227067?fromModule=lemma_inlink)，建立了合理的规章制度。”
+甲： “那是管、卡、压。”
+乙： “我们很关心群众生活！”
+甲： “又搞物质刺激。”
+乙： “不，这是工人自觉执行纪律！”
+甲： “[奴隶主义](https://baike.baidu.com/item/%E5%A5%B4%E9%9A%B6%E4%B8%BB%E4%B9%89/3749296?fromModule=lemma_inlink)！”
+乙： “他们是为革命，钻研技术。”
+甲： “走白专道路。”
+乙： “所以加快了生产速度。”
+甲： “我们宁肯要[无产阶级](https://baike.baidu.com/item/%E6%97%A0%E4%BA%A7%E9%98%B6%E7%BA%A7/555390?fromModule=lemma_inlink)的低速度，也不要[资产阶级](https://baike.baidu.com/item/%E8%B5%84%E4%BA%A7%E9%98%B6%E7%BA%A7/545989?fromModule=lemma_inlink)的高速度。”
+乙： 合着怎么都不好啊！“告诉你，工人同志们，为了大干社会主义，已经提前完成国家计划。”
+甲： “好……”
+乙： 哎呀她可说个“好”字。
+甲： “好一个[唯生产力论](https://baike.baidu.com/item/%E5%94%AF%E7%94%9F%E4%BA%A7%E5%8A%9B%E8%AE%BA/66255273?fromModule=lemma_inlink)！”
+乙： 嚯，这帽子越来越大呀。
+甲： 这个江老板到部队去，是公开地给部队的老首长扣帽子呀。
+乙： 诶，比如说呀，我这是部队，她又是怎么表演的呢。
+甲： “我，代表我个人，给你们部队，送来了学习材料。”
+乙： 这是背着中央另搞一套。
+甲： “我很关心你们部队。这次来，我就是……”
+乙： 怎么关心？
+甲： “给你们放一把火。”
+乙： 啊，放火来了！
+甲： “放火烧荒，烧一烧你们部队的老同志。”
+乙： “不，我们应该向老同志学习，他们都有丰富的革命经验。”
+甲： “那是[经验主义](https://baike.baidu.com/item/%E7%BB%8F%E9%AA%8C%E4%B8%BB%E4%B9%89/1249388?fromModule=lemma_inlink)！”
+乙： “他们都打过仗，立过功。”
+甲： “吃老本啊！”
+乙： “他们始终保持革命战争年代那么一股劲儿。”
+甲： “你们可要警惕，戴着红五星的[走资派](https://baike.baidu.com/item/%E8%B5%B0%E8%B5%84%E6%B4%BE/4378191?fromModule=lemma_inlink)！”
+乙： 这帽子又飞起来了。
+甲： “你们揪不出来，我帮你们揪。”
+乙： “我们这单位没有。”
+甲： “阶级斗争熄灭论。”
+乙： “我们这儿是个班。”
+甲： “……准有走资兵！”
+乙： “走资兵”！什么帽子都有啊。
+甲： “结合我的指示，你们要认真阅读我给你们的学习材料，深刻领会精神实质。”
+乙： [马列](https://baike.baidu.com/item/%E9%A9%AC%E5%88%97/19726863?fromModule=lemma_inlink)著作？
+甲： “《吕后正传》。”
+乙： 叫部队看这书？
+甲： “这是[儒](https://baike.baidu.com/item/%E5%84%92/4813584?fromModule=lemma_inlink)法斗争的必修课。”
+乙： “我们不知道什么[吕后](https://baike.baidu.com/item/%E5%90%95%E5%90%8E/22235?fromModule=lemma_inlink)。”
+甲： “吕后……就是[宋朝](https://baike.baidu.com/item/%E5%AE%8B%E6%9C%9D/2919?fromModule=lemma_inlink)那个[慈禧](https://baike.baidu.com/item/%E6%85%88%E7%A6%A7/184326?fromModule=lemma_inlink)太后。”
+乙： 她把慈禧太后搬宋朝去啦！
+甲： “你不学无术啊！”
+乙： 这帽子给我扣上啦！她怎么净研究这个？
+### 第五部分
+甲： 江青反党乱军，就是想当女皇。毛主席早就觉察江青有野心，几次警告她， 她不但不听，反而变本加厉，疯狂对抗。她到农村去暴露得更加明显了。
+乙： 她到[农村](https://baike.baidu.com/item/%E5%86%9C%E6%9D%91/1017518?fromModule=lemma_inlink)怎么表演的？你学学。
+甲： “我到你们这儿——是来劳动的。”
+乙： 这模样能劳动吗？
+甲： “我和贫中农一样嘛。”
+乙： 一点儿不一样。来劳动？给你把铁揪，挖个[菜窖](https://baike.baidu.com/item/%E8%8F%9C%E7%AA%96/2873162?fromModule=lemma_inlink)。
+甲： （装模作样）“呸！呸！”
+乙： 干哪！
+甲： “等着照相。”
+乙： 啊？
+甲： “给你！”
+乙： 干完了。
+甲： “照完了。”
+乙： 就等着照相。
+甲： “把这个送博物馆去嘛！”
+乙： 你干什么啦？
+甲： “这个记者，影响我劳动。”
+乙： 给记者也扣帽子。
+甲： “劳动是我的第一需要。”
+乙： 说得多好听啊！
+甲： “你们这里……领导班子还不错嘛。”
+乙： 行，没扣帽子。
+甲： “就是有严重的[大男子主义](https://baike.baidu.com/item/%E5%A4%A7%E7%94%B7%E5%AD%90%E4%B8%BB%E4%B9%89/4767803?fromModule=lemma_inlink)！”
+乙： 还是扣上了！
+甲： “一把手换个妇女干干嘛！不要[男尊女卑](https://baike.baidu.com/item/%E7%94%B7%E5%B0%8A%E5%A5%B3%E5%8D%91/1417843?fromModule=lemma_inlink)，将来[主席](https://baike.baidu.com/item/%E4%B8%BB%E5%B8%AD/2296?fromModule=lemma_inlink)也可以是个女的嘛。女人也能当皇帝，到了[共产主义](https://baike.baidu.com/item/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89/156911?fromModule=lemma_inlink)也有女皇。”
+乙： 野心暴露出来了。
+甲： “吕后就是女皇，那是妇女的典范，我学习的榜样。我就是[红色](https://baike.baidu.com/item/%E7%BA%A2%E8%89%B2/58907157?fromModule=lemma_inlink)的吕后，[布尔什维克](https://baike.baidu.com/item/%E5%B8%83%E5%B0%94%E4%BB%80%E7%BB%B4%E5%85%8B/534742?fromModule=lemma_inlink)的吕后。20 世纪的 Ms. 吕！2”
+乙：一枕黄粱，痴心妄想。
+### 第六部分
+甲： 一声霹雳震天响，一举粉碎了“四人帮”反革命集团。
+乙： 除掉“四害”，人心大快。
+甲： 这个江青连哭带闹：“你们这是迫害‘革命旗手’。”
+乙： 还扣帽子哪！
+甲： “天哪！天哪！我的……[武则天](https://baike.baidu.com/item/%E6%AD%A6%E5%88%99%E5%A4%A9/61872?fromModule=lemma_inlink)哪。”
+乙： 还想当女皇。
+甲： 她连蹦带跳，“叭”一下子……
+乙： 什么？
+甲： 把帽子甩出去啦。“帽子，帽子。”
+乙： 她找帽子。
+甲： 我们给她戴了一顶，不大不小正合适。
+乙： 什么帽子？
+甲： 资产阶级野心家！
+
+---
+When good old friends are going away
+Will you wish them to remember your name?
+When good old days are passing away
+Will you promise your heart remains the same
+Never can we suspend the time
+Having to leave the tracks behind
+there is a longer way ahead, After all.
+There used to be a story teller
+who always painted the sunshine and the rain
+One has to eventually grow up
+Spending a lifetime to taste the love and pain
+Never can we suspend the time
+Having to leave the tracks behind
+there is a longer way ahead, After all.
+If it’s too hard to say goodbye
+Give us a try to sing a rhyme
+"May you, the beauty of this world, always shine."

@@ -11,7 +11,6 @@
 毕竟装 Arch 总比 OI 简单吧。嗯。
 ## Βήματα $\delta$: 制作 Ventoy 盘
 
-
 ## Βήματα $\varepsilon$: 磁盘分区
 注意，这一步只是教你如何给磁盘分区，如果你会请跳过这一步。
 ### 对于 Windows 系统
@@ -194,7 +193,19 @@ passwd root
 # 设个密码，不限制强度
 pacman -S intel-ucode grub efibootmgr os-prober
 grub-install --target=x86_64-efi --efi-directory=/boot --bootloader-id=<Name>
+vim /etc/default/grub
+# 把前面的这一句中的 "loglevel=3,quiet" 改成 "loglevel=5"
+GRUB_CMDLINE_LINUX_DEFAULT="loglevel=5"
+# 翻到最后，把这一句取消注释，也就是将 # 删掉
+GRUB_DISABLE_OS_PROBER=false
+# 按 :wq 退出
+grub-mkconfig -o /boot/grub/grub.cfg
 ```
+
+到这里你算是装好 Arch 了。  
+## Βήματα 3: 安装完成
+接下来，我们将要离开安装程序，进入 Arch Linux 系统。
+
 
 ___
 **【附录】**
