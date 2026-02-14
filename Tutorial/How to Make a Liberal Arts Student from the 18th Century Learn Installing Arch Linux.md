@@ -202,7 +202,7 @@ GRUB_DISABLE_OS_PROBER=false
 grub-mkconfig -o /boot/grub/grub.cfg
 ```
 
-到这里你算是装好 Arch 了。  
+到这里算是装好 Arch 了。  
 ## Βήματα 3: 安装完成
 接下来，我们将要离开安装程序，进入 Arch Linux 系统。
 
